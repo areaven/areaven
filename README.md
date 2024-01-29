@@ -1,4 +1,4 @@
-### Buenas!
- Soy Alan, un estudiante de Ingeniería Electrónica de Chubut interesado en programar, tratando de encontrarle la vuelta.
+### Buenas che
+ Soy Alan, estudio Ingeniería Electrónica y me gusta codear boludeces.
  
- Siempre abierto a hablar, quien quiera que mande mensaje tranquilo!
+ Siempre abierto a hablar.
